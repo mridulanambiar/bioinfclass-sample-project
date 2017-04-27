@@ -1,3 +1,8 @@
+Ran the location trees
+Was interesting
+
+
+
 
 # Bioinfclass Notes
 
